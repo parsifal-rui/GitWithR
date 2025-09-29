@@ -5,4 +5,4 @@ In-class activity for Course STAT4060J in UM-JI, 2025 Fall
 1. **rain** by mxmtoon;  
 I first heard this song in the game Dave the Diver, and love its lighthearted tune and the sound of the acoustic guitar. (Yerui Huang)
 2. **Seasons in the sun** by WestLife
-I heard this song during junior middle school and liked it very much.
+I heard this song during junior middle school and liked it very much. (Honglin Yao)
