@@ -5,6 +5,5 @@ In-class activity for Course STAT4060J in UM-JI, 2025 Fall
 1. **rain** by mxmtoon;  
 I first heard this song in the game Dave the Diver, and love its lighthearted tune and the sound of the acoustic guitar. (Yerui Huang)
 
-2. **Merry Christmas Mr. Lawrence** by Ryuichi Sakamoto
-
+2. **Merry Christmas Mr. Lawrence** by Ryuichi Sakamoto;
 A wonderful song. (Yuyi Cai)
